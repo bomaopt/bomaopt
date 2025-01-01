@@ -1,4 +1,6 @@
-## Hi there 👋
+## 博猫游戏_博猫代理游戏-博猫平台注册地址网站 👋
+
+<https://bomaopt.github.io>
 
 <!--
 **bomaopt/bomaopt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
